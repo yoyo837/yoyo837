@@ -1,1 +1,1 @@
-![Rilakkuma](https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1594286555162&di=409a49eb5efa5c8f79bf9b3cd9741cbb&imgtype=0&src=http%3A%2F%2Fa-ssl.duitang.com%2Fuploads%2Fitem%2F201301%2F31%2F20130131204420_mfGcP.jpeg)
+![Rilakkuma](http://pic38.nipic.com/20140228/15692540_131210408168_2.png)
