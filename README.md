@@ -1,3 +1,3 @@
 ![visitor](https://visitor-badge.glitch.me/badge?page_id=yoyo837/yoyo837)
 
-![Rilakkuma](http://pic38.nipic.com/20140228/15692540_131210408168_2.png)
+<img width="630" alt="image" src="https://user-images.githubusercontent.com/6134547/174003880-af6d1651-f106-489f-850e-5852929d6fd1.png">
